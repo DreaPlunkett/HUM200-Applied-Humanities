@@ -1,2 +1,2 @@
 # HUM200-Applied-Humanities
-Sample Writing
+Sample Writing and creative Presentation 
